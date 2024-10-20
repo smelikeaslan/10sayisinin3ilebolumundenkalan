@@ -1,0 +1,1 @@
+# 10sayisinin3ilebolumundenkalan
